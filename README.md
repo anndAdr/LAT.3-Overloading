@@ -1,0 +1,1 @@
+# lat-1-4-pewarisan
